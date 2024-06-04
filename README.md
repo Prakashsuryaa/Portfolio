@@ -1,1 +1,3 @@
-Thanks for 
+Thanks for visting my portfoilo and mini project.
+https://colorlib.com/ for more themes which boost your portfolio.
+Also you can use this ...
